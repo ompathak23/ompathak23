@@ -4,7 +4,7 @@
 
 - 👨‍🎓 I'm a CSE with AI undergrad at NSUT, Delhi.
 - 👨‍💻 I'm currently venturing into Web Development
-- 💬 Let's talk about technology,  
+- 💬 Let's talk about technology, books and entrepreneurship.
 - ⚡ Fun fact: I am a food enthusiast and love to read books.
 - 😄 Pronouns: He/His
 
